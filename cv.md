@@ -12,7 +12,7 @@
 
 ## Briefly About Myself
 ***
-
+  I was born, I live, I study and someday I will learn
 
 ## Skills
 ***
